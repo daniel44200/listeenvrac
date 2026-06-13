@@ -3,8 +3,7 @@ Liste de titres envisagés :
 [Google](https://google.com)  
 Christophe Les mots bleus / eJuin  
 Phil Collins Another day in.. / pMai  
-Phil Collins In the air tonight / vMai  
-Indochine J'ai demandé à la lune / eJuin  
+Phil Collins In the air tonight / vMai   
 The Korgis Everybodys got to learn.. / vJuin  
 Cindy Lauper Time after time / vJuin  
 Muse Starlight / vMai  
