@@ -5,7 +5,7 @@ Phil Collins Another day in.. / pMai
 Phil Collins In the air tonight / vMai  
 Indochine J'ai demandé à la lune / eJuin  
 The Korgis Everybodys got to learn.. / vJuin  
-Cindy Lauper Time after time / vJuin
+Cindy Lauper Time after time / vJuin  
 Muse Starlight / vMai  
 Pink Floyd Wish you were here / tJuin  
 REM Losing my RELIGION / tJuin  
